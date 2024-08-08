@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Lingeshwaran G 
+# 👋 Hi, I'm VIJAYSURYA M
 ## Empowering Connections through Innovative Software Solutions
 
 ## 🚀 Skills
